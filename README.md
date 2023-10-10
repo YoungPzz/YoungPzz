@@ -1,7 +1,7 @@
 ### 
 ### Hi everybody👋
 
-### This is youngp from XDU😆
+### This is YoungP from XDU😆
 
 ### Let's go together!🐛
 <!--
