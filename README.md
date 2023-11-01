@@ -1,9 +1,11 @@
 ### 
-### Hi everybody👋
+### 假如生活欺骗了你，不要悲伤，不要心急！
 
-### This is YoungP from XDU😆
+### 不要悲伤😆
 
-### Let's go together!🐛
+### 不要心急🐛
+
+### 忧郁的日子里须要镇静：相信吧，快乐的日子将会来临！👋
 <!--
 **YoungPzz/YoungPzz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
